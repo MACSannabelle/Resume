@@ -13,4 +13,6 @@ My spirit animal
 [Silas High School](https://silas.tacomaschools.org/)
 
 [Western Washington University](https://www.wwu.edu/)
-# Resume
+
+#### Research Interests
+I like the ocean
